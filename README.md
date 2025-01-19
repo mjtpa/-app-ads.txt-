@@ -1,1 +1,1 @@
-<meta name="google-site-verification" content="jneQu0hJw-4kDV_Ya3zpMQuFWbYfa6rwUxnBqKq4WPg" />
+google.com, pub-8778821053996429, DIRECT, f08c47fec0942fa0
